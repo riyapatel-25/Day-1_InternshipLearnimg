@@ -1,1 +1,1 @@
-# Day-1_InternshipLearnimg
+# Day-1_InternshipLearning
